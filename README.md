@@ -1,0 +1,1 @@
+# Better-Fast-Typing
